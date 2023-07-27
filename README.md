@@ -1,1 +1,1 @@
-My first readme
+The journey is the reward
