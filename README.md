@@ -1,1 +1,1 @@
-The journey is the reward
+Practice yields improvement
